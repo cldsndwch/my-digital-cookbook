@@ -1,3 +1,3 @@
 ## Ceasar Salad
-**Prep Time:** 10 minutes
+**Prep Time:** 12 minutes
 **Ingredients:** romaine lettuce, croutons, parmesan, ceasar dressing
